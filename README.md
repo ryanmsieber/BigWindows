@@ -1,2 +1,2 @@
 # BigWindows
-Big Windows In.
+Big Windows Inc.
